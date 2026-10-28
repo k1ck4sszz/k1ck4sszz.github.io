@@ -1,1 +1,0 @@
-# k1ck4sszz.github.io
